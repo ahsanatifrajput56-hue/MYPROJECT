@@ -1,0 +1,1 @@
+Widely regarded as one of the best contemporary batsmen in the world, he is highly celebrated for his technically sound and elegant right-handed batting style and signature cover drive.
